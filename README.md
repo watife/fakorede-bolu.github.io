@@ -1,1 +1,1 @@
-# fakorede-bolu.github.io
+# fakorede-bolu-github.io
